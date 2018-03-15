@@ -1,3 +1,3 @@
 Ilija Petrov
 Dejan Paunov
-Metodi napraj 10 skleka;
+Ile naredi mu na Metodi da naprae 10 skleka;
